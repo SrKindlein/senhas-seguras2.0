@@ -1,0 +1,1 @@
+# senhas-seguras2.0
